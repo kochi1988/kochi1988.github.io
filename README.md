@@ -1,0 +1,1 @@
+# kochi1988.github.io
